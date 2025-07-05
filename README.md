@@ -19,4 +19,4 @@
 我们深知，稳定更新才是网站的生命力。这里每天都会有最新的日本AV影片上线，紧跟日本片商发布节奏，确保内容始终新鲜、真实、完整。欢迎你将本站添加到收藏夹，每天访问获取第一手的日本AV免费在线观看资源，享受高效、安全、私密的看片体验。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/tt65065/45096 ）</span>
